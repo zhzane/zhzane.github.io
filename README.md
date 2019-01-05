@@ -1,2 +1,0 @@
-# zhzane.github.io
-Blogs
